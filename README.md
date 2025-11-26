@@ -4,4 +4,4 @@
  <p align="center">
 <img alt="Static Badge" src="https://img.shields.io/badge/piece_of-shit_.%E1%90%9F-darkred">
 
- 　<p align="center">✦      [atabook](https://chuyas.atabook.org)    [strwpge] still a wip </p>
+ 　<p align="center">✦      [atabook](https://chuyas.atabook.org)    [strwpge](https://nkaharas.straw.page) </p>
