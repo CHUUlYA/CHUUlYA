@@ -7,4 +7,4 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=82jzfnro54y4sgdbiex2ebx41&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=805b52&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
       
       ㅤㅤ  　  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 2𝟯/𝟯/2𝟯 𑣲𝒹
-𝑖ㅤl𝐨v𝐞ㅤm𝐲ㅤ[𝒃𝙤yfrien𝐝](https://github.com/dazaiosaamu)ㅤ‹𝟹
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝑖ㅤl𝐨v𝐞ㅤm𝐲ㅤ[𝒃𝙤yfrien𝐝](https://github.com/dazaiosaamu)ㅤ‹𝟹
